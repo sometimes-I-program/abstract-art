@@ -12,6 +12,9 @@ The representation of one's self is always from their unique perspective.
 
 In life, you always fail within hours of not appreciating what you already have.
 
+![Good Comes in Opposites](good-comes-in-opposites.png)
+When you form a group, remember that for your group to succeed, you must try your hardest.
+
 # Artist
 
 Matt, Copyright [Apps and Art](www.apps-and-art.org) 2025 &copy;
